@@ -29,4 +29,4 @@ Direct Contact:
 
 Telegram/WhatsApp: +49 178 843 52 33
 
-Location: Hamburg, Germany
+Location: Munich, Germany
